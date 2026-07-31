@@ -1,0 +1,22 @@
+官方网站【609.tw】代理合作咨询 加V 【53280602】先看一个经典台词：“做人没有梦想那和咸鱼有什么区别？”这话出自周星驰的电影。两部片子，跨度25年，都在讲同一件事。
+{图片}{图片}{图片}
+信源来自搜狐娱乐、北京日报、cctv6、大象新闻。报道里说，细节可能有润色。但核心事实摆在那：一句台词，两部电影，25年。你算算，从1999年《喜剧之王》到现在，正好25年。
+https://github.com/jewel70des/kqwxbp/blob/main/dEHAzu%E3%80%90%E5%9D%80-609.tw%E3%80%91%E8%85%BE%E9%BE%99%E5%85%AC%E5%8F%B8%E4%BC%9A%E5%91%98%E8%B4%A6%E5%8F%B7%E5%AF%86%E7%A0%81%E7%99%BB%E5%BD%95%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80.md
+https://github.com/jewel70des/kqwxbp/commit/bf52e77be530efc8ec9ef851413388ce23301785
+https://github.com/jewel70des/kqwxbp/blob/main/yCjygn%E3%80%90%E5%9D%80-609.tw%E3%80%91%E6%96%B0%E7%9B%9B%E5%85%AC%E5%8F%B8%E8%8E%B7%E5%8F%96%E7%99%BB%E5%BD%95%E6%B8%B8%E6%88%8F%E4%BC%9A%E5%91%98%E8%B4%A6%E5%8F%B7%E7%BD%91%E5%9D%80.md
+https://github.com/jewel70des/kqwxbp/commit/07647cc4c091afcec0aeccac4d53a477f7a3cec2
+https://github.com/jewel70des/kqwxbp/blob/main/hRfdMu%E3%80%90%E5%9D%80-609.tw%E3%80%91%E9%93%B6%E6%B2%B3%E5%85%AC%E5%8F%B8%E4%BC%9A%E5%91%98%E7%94%B3%E8%AF%B7%E6%B3%A8%E5%86%8C%E8%B4%A6%E5%8F%B7%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80.md
+
+周星驰自己演的尹天仇，跑龙套的，说这句时还被人当笑话。25年后，《新喜剧之王》里换了人，意思没变。你看，同一个梦想，换了张脸，时间过了四分之一世纪。
+https://github.com/jewel70des/kqwxbp/commit/73189c52b0d0ebac3446405e8540d1bce88aefe1
+https://github.com/jewel70des/kqwxbp/blob/main/uzFlrp%E3%80%90%E5%9D%80-609.tw%E3%80%91%E8%85%BE%E9%BE%99%E5%85%AC%E5%8F%B8%E8%8E%B7%E5%8F%96%E6%B8%B8%E6%88%8F%E4%BC%9A%E5%91%98%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C%E8%B4%A6%E5%8F%B7%E7%BD%91%E5%9D%80.md
+https://github.com/jewel70des/kqwxbp/commit/d3c8fa82c0812bcac8c83af117f19ff212da9733
+https://github.com/jewel70des/kqwxbp/blob/main/zHErIi%E3%80%90%E5%9D%80-609.tw%E3%80%91%E8%85%BE%E9%BE%99%E5%85%AC%E5%8F%B8%E7%99%BB%E5%BD%95%E4%BC%9A%E5%91%98%E8%B4%A6%E5%8F%B7%E6%88%96%E6%B3%A8%E5%86%8C%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80.md
+https://github.com/jewel70des/kqwxbp/commit/bc1ea977e6b6403e0f397cc5f0fa92c7973f4999
+
+报道最后还提醒，理智阅读，仅供参考。这话说得对，但核心事实不用怀疑：台词原封不动，电影确实两部，时间确实25年。
+https://github.com/jewel70des/kqwxbp/blob/main/IkEyLL%E3%80%90%E5%9D%80-609.tw%E3%80%91%E8%BF%AA%E5%A8%81%E5%85%AC%E5%8F%B8%E4%BC%9A%E5%91%98%E8%B4%A6%E5%8F%B7%E4%B8%8B%E8%BD%BD%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80.md
+https://github.com/jewel70des/kqwxbp/commit/44be944b7df47dc86ec3fa02d201418b291c527d
+https://github.com/jewel70des/kqwxbp/blob/main/tMUkgy%E3%80%90%E5%9D%80-609.tw%E3%80%91%E6%96%B0%E7%9B%9B%E5%85%AC%E5%8F%B8%E6%B8%B8%E6%88%8F%E4%BC%9A%E5%91%98%E8%B4%A6%E5%8F%B7%E7%BD%91%E5%9D%80.md
+https://github.com/jewel70des/kqwxbp/commit/fd7e7d1a212a31339c0270bf677725ea13c6ce63
+https://github.com/jewel70des/kqwxbp/blob/main/ihJpqg%E3%80%90%E5%9D%80-609.tw%E3%80%91%E8%BF%AA%E5%A8%81%E5%85%AC%E5%8F%B8%E4%BC%9A%E5%91%98%E8%B4%A6%E5%8F%B7%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80.md
